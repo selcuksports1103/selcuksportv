@@ -1,4 +1,4 @@
-### ⚽ **SelçukSports** 🆚 **Galatasaray & Antalyaspor Canlı Maç İzle | HD Yayın | Kesintisiz Yayın 🎥🏆**
+### ⚽ **SelçukSports** 🆚 **Konyaspor & Beşiktaş Canlı Maç İzle | HD Yayın | Kesintisiz Yayın 🎥🏆**
 
 📲 **Bizi Sosyal Medyada Takip Edin!** 🔗
 
@@ -9,11 +9,11 @@
 [![Seçluk-Sports](https://github.com/user-attachments/assets/7b403761-130b-4ca4-b95a-9ebe49bcba28)](https://link24.site/Selcuksports)
 
 
-**SelçukSports** ile **Galatasaray & Antalyaspor** maçını kaçırmayın! La Liga'nın en heyecanlı derbisini, **HD kalitesinde** ve **kesintisiz yayın** ile izleme fırsatını kaçırmayın. Hemen **SelçukSports**'u tercih edin!
+**SelçukSports** ile **Konyaspor & Beşiktaş** maçını kaçırmayın! La Liga'nın en heyecanlı derbisini, **HD kalitesinde** ve **kesintisiz yayın** ile izleme fırsatını kaçırmayın. Hemen **SelçukSports**'u tercih edin!
 
-🎯 **Galatasaray & Antalyaspor Canlı Yayın!** 🏟️📡
+🎯 **Konyaspor & Beşiktaş Canlı Yayın!** 🏟️📡
 
-📌 **Galatasaray & Antalyaspor** karşılaşmasını **HD kalitesinde** izleyin ve **kesintisiz yayın** ile futbolun heyecanını yaşayın!
+📌 **Konyaspor & Beşiktaş** karşılaşmasını **HD kalitesinde** izleyin ve **kesintisiz yayın** ile futbolun heyecanını yaşayın!
 
 ✅ **Full HD ve Sorunsuz Yayın** 🎥  
 ✅ **La Liga Maçları Canlı İzleme İmkanı** ⚽  
@@ -34,6 +34,6 @@
 🏅 **La Liga ve diğer liglerden canlı maçları kaçırmamak için Selçuk Sports'u takip edin!**
 
 📢 **Maç öncesinde güncellenen yayın linkleriyle anında bağlanın!**  
-📺 **Galatasaray & Antalyaspor maçını canlı izlemek için hemen ziyaret edin**: 👉 [MAÇ SİTESİ İÇİN TIKLAYIN](https://link24.site/Selcuksports)
+📺 **Konyaspor & Beşiktaş maçını canlı izlemek için hemen ziyaret edin**: 👉 [MAÇ SİTESİ İÇİN TIKLAYIN](https://link24.site/Selcuksports)
 
 🌟 **HD kalitesinde, donmadan maç izlemek için Selçuk Sports'a bağlanın!** 🎉
